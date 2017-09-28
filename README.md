@@ -5,6 +5,8 @@ Links of Vocals (No Music Gazals,Naats and Tilawats)
 
 * [Awakening Records](https://www.youtube.com/watch?v=D5vsICvAA8U&list=PLoagsPg26SY4vBcNJO-y-EXQsaqUbyDZU)
 
+## Ehsaan Tahmid
+* [Tamanna](https://www.youtube.com/watch?v=1DxLXL-_cL8)
 
 ## Junaid Jamshed
 
