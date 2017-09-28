@@ -5,6 +5,9 @@ Links of Vocals (No Music Gazals,Naats and Tilawats)
 
 * [Awakening Records](https://www.youtube.com/watch?v=D5vsICvAA8U&list=PLoagsPg26SY4vBcNJO-y-EXQsaqUbyDZU)
 
+## English
+* [Khaled Siddique](https://www.youtube.com/watch?v=hDC2pzJ3Q3Q&index=16&list=RD2GPHrsIRMLk)
+
 ## Ehsaan Tahmid
 * [Tamanna](https://www.youtube.com/watch?v=1DxLXL-_cL8)
 * [Channel](https://www.youtube.com/channel/UC0OQYbUkGVfH1Idvvzq73xg)
