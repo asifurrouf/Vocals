@@ -7,6 +7,7 @@ Links of Vocals (No Music Gazals,Naats and Tilawats)
 
 ## Ehsaan Tahmid
 * [Tamanna](https://www.youtube.com/watch?v=1DxLXL-_cL8)
+* [Channel](https://www.youtube.com/channel/UC0OQYbUkGVfH1Idvvzq73xg)
 
 ## Junaid Jamshed
 
