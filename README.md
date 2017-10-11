@@ -9,6 +9,7 @@ Links of Vocals (No Music Gazals,Naats and Tilawats)
 
 ## Mishary Alfasy
 * [Mishary Alfasy](https://www.youtube.com/watch?v=O-tgEk2lfro&index=1&list=PL457706BDA3DB845B) 
+* [Rahman Ya Rahman -Mishary Alfasy in Chechyna(Russia)](https://www.youtube.com/watch?v=-CcgILlU1XM)
 
 ## English
 * [Khaled Siddique](https://www.youtube.com/watch?v=hDC2pzJ3Q3Q&index=16&list=RD2GPHrsIRMLk)
