@@ -7,7 +7,8 @@ Links of Vocals (No Music Gazals,Naats and Tilawats)
 * [Maher Zain & Mustafa Ceceli - The Way of Love | (Vocals Only - بدون موسيقى) | Official Music Video](https://www.youtube.com/watch?v=wyleLoCZsh8)
 * [Maher Zain & Atif Aslam:Ilahi Mawla](https://www.youtube.com/watch?v=9Jsb0Dy6wWA)
 
-
+## Mishary Alfasy
+* [Mishary Alfasy](https://www.youtube.com/watch?v=O-tgEk2lfro&index=1&list=PL457706BDA3DB845B) 
 
 ## English
 * [Khaled Siddique](https://www.youtube.com/watch?v=hDC2pzJ3Q3Q&index=16&list=RD2GPHrsIRMLk)
